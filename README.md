@@ -1,1 +1,1 @@
-# Prismwaves.-Github.-io
+# prismwaves-github-io
